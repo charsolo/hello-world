@@ -5,3 +5,4 @@ Hi Everyone,
 Charles here, just checking out what I can offer you all. 
 Coding is it. If software could make their own choices and love, I would gladly be one. 
 For now, let's just see how far I can go. 
+Maybe I would create something. 
